@@ -1,0 +1,1 @@
+# Forbes-World-Billionaires-List-2022-Analysis
